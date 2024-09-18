@@ -1,2 +1,3 @@
 # Prueba-numero-1
-Este es el primer repositorio que vamos a tener de muchos el señor nos guiara y bajo de sus alas estamos seguros 
+Jehova es mi pastor nada me faltara en lugares delicados pastos me pastoreara junto aguas de reposo
+ 
